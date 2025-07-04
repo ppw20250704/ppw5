@@ -18,4 +18,4 @@
 
 更重要的是，所有影片都无需注册或登录，直接点击播放即可。你不需要输入任何个人信息，也不需要支付任何费用，所有内容完全免费。我们的目标是为你提供最便捷的观看体验，让你在没有任何干扰的情况下，享受高质量的日本AV资源。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/ppw20250704/ppw5 ）</span>
